@@ -38,6 +38,9 @@
 
 ![Screenshot 2024-11-27 134316](https://github.com/user-attachments/assets/9a2faee6-8c58-494c-a988-4c4f88688508)
 
+![image](https://github.com/user-attachments/assets/d2499692-bd54-4190-82ff-e3912a4937fd)
+
+
 ### Name:D.Nitish Adavan
 ### Register Number:24901049
 
